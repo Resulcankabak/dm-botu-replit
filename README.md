@@ -1,1 +1,1 @@
-# dm-botu-replit
+# Bu Dm Duyuru Botudur Paylaşılması Kesinlikle Yasaktır !
